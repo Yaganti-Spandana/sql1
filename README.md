@@ -194,3 +194,11 @@ If you want next:
 - GitHub + Instagram branding strategy
 
 Just tell me 🚀
+
+👤 Author Your Name
+
+GitHub: https://github.com/Yaganti-Spandana
+
+Instagram: https://www.instagram.com/projios?igsh=Z2lwMXM0NW9vMjF1
+
+YouTube: https://youtube.com/@yagantispandana0607?si=Fluy8umxeONIo5rx
